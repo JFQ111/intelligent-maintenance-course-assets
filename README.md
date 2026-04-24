@@ -1,0 +1,1 @@
+# intelligent-maintenance-course-assets
